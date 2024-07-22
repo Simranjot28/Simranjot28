@@ -23,5 +23,19 @@ I have completed my class 12th from Shri Guru Gobind Singh Public School, sec-35
   | 12 July, 2024 | Peer Interaction Technical | Here Seniors interacted with us and told us how to use excel|
   |               | Maths Class | Sir revised the basics of derivatives and guided us through solving problems |
   | 15 July 2024 | Dr. Randhir Singh | Sir taught us how to create github page and add a repository |
-  |               |  Dr. Pyare Lal | He teaches that with determination, any dreams is achievable 
+  |               |  Dr. Pyare Lal | He teaches that with determination, any dreams is achievable and always spread positivity. Sir shared us very nice poetry and shared very nice poetry lines|
+  |               | Mr. Sony Goyal | Mr. Sony Goyal delivered a very nice session on effective planning and excellence in engineering. He said to give your 100% in every task. Instead of using the term '**NON MEDICAL** we should us the term **SCIENCE STREAM**. He encouraged students to embrace academics personal growth with enthusiasm|
+  |               | Mr. Pancham | He taught about body languauge and non- verbal communications using good facial expressions.He also shared inspiring anecdotes and lessons from his leadership roles in many societies|
+  | 16 July,2024 | English activities | A debte took place between two groups and group discussions were also held on different topics|
+  | 17 July,2024 | Maths Class | Mam gave us questions to solve for differentiation and integration and disscused them in class. After that she gave us  homework questions as well|
+  |              | Mnajot Mam( UHV) |This was our first UHV class in which we completed the first chapter, we explored the concets of happiness and prosperity, guidlines for mutual happiness, mutual prosperity and the role of education in our life|
+  |              | English Test| A sudden english test was conducted|
+  |18 July,2024| UHV Class ( Manjot Mam) | In the second UHV class we completed 2nd and 3rd chapter. In second chapter we studied coexistence of body and soul , also sources of imagination. In third chapter we studied the understanding of harmony in relationships and 9 feelings to make relationship good|
+  |               | Peer Interaction ( Technical) | In this sesion we learned about CHAT GPT and excel functions |
+  |               | Dr, Harwinder Singh | Sir explained us about **NCC** ( NATIONAL CADET CORPS) and told how to enroll for the interested students. He told that NCC teaches life skills that are essential for good lifestyle|
+  |               | Dr. Jasvir Singh Grewal | Sir told us about **NSS** ( NATIONAL SERVICE SCHEME) in which students contribute in development of community, environmental conservationsand good leadership qualities|
+  | 19 July,2024 | Er. Kanwardeep Kalra | She is ICBI certified softskill trainer. Shesaid that soft skills are as important as technical skills. She also presented a role play that how to behave durind an interview. She defined difined C as different words and also guided about essential soft skills|
+  |              | Jaswinder Singh Incharge- IAPT | The session with jaswinder sir was both engaging and entertaining. He explained the meaning of **SAT SHRI AKAAL** and demonstrated the number of bones in our body i,e,.26 bone sin our each feet, 27 bones in our each hand,28 bones in our face and skull, 52 bones in our chest, 5 bones in our each arm, 5 bones in each leg which in total make 206 bones. He also taught how to write the table for 118|
+  |              | Department visit | We visited the computer sciencedepartment and visited server room for the very first time |
+                
   
