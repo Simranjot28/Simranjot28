@@ -1,4 +1,6 @@
 ## Simranjot.github.io
+## Profile:-Simranjot
+![profile picture](https://github.com/user-attachments/assets/1b50dcdb-6c56-4b77-bf03-9b7fa5b29d79)
 ### Personal information
 - **Name**:-Simranjot
 - **Age**:-18
