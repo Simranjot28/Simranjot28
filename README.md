@@ -38,7 +38,12 @@ I have completed my class 12th from Shri Guru Gobind Singh Public School, sec-35
   |              | Jaswinder Singh Incharge- IAPT | The session with jaswinder sir was both engaging and entertaining. He explained the meaning of **SAT SHRI AKAAL** and demonstrated the number of bones in our body i,e,.26 bone sin our each feet, 27 bones in our each hand,28 bones in our face and skull, 52 bones in our chest, 5 bones in our each arm, 5 bones in each leg which in total make 206 bones. He also taught how to write the table for 118|
   |              | Department visit | We visited the computer science department and visited server room for the very first time |
   | 22 July, 2024 | Dr. Surinderbir Singh | Sir taught us about different packages and placement we get after completing the degree. He guided us to read books such as **WINGS ON FIRE** and **IGNITED MINDS** written by Dr. APJ Abdul Kalaam|
-  |               | Dr. Pushpinder Singh | Pushpinder sir told us various learning styles such as strategy , surface and deeper learning. He told us about the depression rate which nowdays increasing in almost every college. He defined the meaning of**SMART** as SPECIFIC, MEASURABLE, ACHIEVABLE, REALISTIC AND TIME. He gave us a formula**TQP** which means total quality people that describes people should have desire, focus, concentration,flexibility and faith in ourself|
+  |               | Dr. Pushpinder Singh | Pushpinder sir told us various learning styles such as strategy , surface and deeper learning. He told us about the depression rate which nowdays increasing in almost every college. He defined the meaning of**SMART** as SPECIFIC, MEASURABLE, ACHIEVABLE, REALISTIC AND TIME. He gave us a formula**TQP** which means total quality people that describes people should have desire, focus, concentration,flexibility and faith in ourself.|
+  |               | Sangita  Mam | Mam showed us a presentation which showed how our bad behaviour with nature exploit the resources. She also taught us how we can conserve our nature, even small steps taken by us matters alot and the session ends with discussion about sustainable development|
+  |                  | Parsad Vaidya | He told us about the various structures of solar dams, buildings through his PPT|
+  |                   | Causmic Club | Our seniors performed bhangra and everyone enjoyed|
+  |23 July,2024 | UHV class | Mam taught us with the fourth chapter **UNDERSTANDING HARMONY IN SOCIETY** . In this chapter we learnt 4 basic goals about it and assumptions in the society.
+  |             | Chemistry Class | As our chemistry teacher was absent so our seniors took the class. They did a discussion about college and guided us with the subjects to concentrate more|   
   
                 
   
