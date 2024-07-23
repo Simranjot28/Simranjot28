@@ -36,6 +36,9 @@ I have completed my class 12th from Shri Guru Gobind Singh Public School, sec-35
   |               | Dr. Jasvir Singh Grewal | Sir told us about **NSS** ( NATIONAL SERVICE SCHEME) in which students contribute in development of community, environmental conservationsand good leadership qualities|
   | 19 July,2024 | Er. Kanwardeep Kalra | She is ICBI certified softskill trainer. Shesaid that soft skills are as important as technical skills. She also presented a role play that how to behave durind an interview. She defined difined C as different words and also guided about essential soft skills|
   |              | Jaswinder Singh Incharge- IAPT | The session with jaswinder sir was both engaging and entertaining. He explained the meaning of **SAT SHRI AKAAL** and demonstrated the number of bones in our body i,e,.26 bone sin our each feet, 27 bones in our each hand,28 bones in our face and skull, 52 bones in our chest, 5 bones in our each arm, 5 bones in each leg which in total make 206 bones. He also taught how to write the table for 118|
-  |              | Department visit | We visited the computer sciencedepartment and visited server room for the very first time |
+  |              | Department visit | We visited the computer science department and visited server room for the very first time |
+  | 22 July, 2024 | Dr. Surinderbir Singh | Sir taught us about different packages and placement we get after completing the degree. He guided us to read books such as **WINGS ON FIRE** and **IGNITED MINDS** written by Dr. APJ Abdul Kalaam|
+  |               | Dr. Pushpinder Singh | Pushpinder sir told us various learning styles such as strategy , surface and deeper learning. He told us about the depression rate which nowdays increasing in almost every college. He defined the meaning of**SMART** as SPECIFIC, MEASURABLE, ACHIEVABLE, REALISTIC AND TIME. He gave us a formula**TQP** which means total quality people that describes people should have desire, focus, concentration,flexibility and faith in ourself|
+  
                 
   
