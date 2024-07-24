@@ -44,6 +44,9 @@ I have completed my class 12th from Shri Guru Gobind Singh Public School, sec-35
   |                   | Causmic Club | Our seniors performed bhangra and everyone enjoyed|
   |23 July,2024 | UHV class | Mam taught us with the fourth chapter **UNDERSTANDING HARMONY IN SOCIETY** . In this chapter we learnt 4 basic goals about it and assumptions in the society.
   |             | Chemistry Class | As our chemistry teacher was absent so our seniors took the class. They did a discussion about college and guided us with the subjects to concentrate more|   
-  
+  | 24 July 2024 | IOC Mr. Gauravdeep Singh | He is the founder and chairman of **initiator of change**. He shared three different lessons with us which was told by his mentor to him at different situations in his life. The very first lesson he gave us was **ਸਾਝ ਕਰੀਜੈ ਗੁਣਹ ਕੇਰੀ ਛੋਡਿ ਅਵਗਣ ਚਲੀਐ** , the second one was **ਜੋ ਬ੍ਰਹਮੰਡੇ ਸੋਈ ਪਿੰਡੇ ਜੋ ਖੋਜੈ ਸੋ ਪਾਵੈ** and the third one was **ਰੱਬ ਸਬਦਾ ਭਲਾ ਕਰਦਾ ਹੈ** ।|
+  |           | Prof. Yuvraj Singh | He told us if there is any query regarding anything they can share with him. He is involved in each club.|
+  |             | Fine Arts Events | we went for the competition of mehandi conducted by our seniors.|
+  |          | CAUSMIC CLUB | In this session we got to know about the causmic club and the events in which we can participate.|
                 
   
