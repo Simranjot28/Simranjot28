@@ -48,5 +48,8 @@ I have completed my class 12th from Shri Guru Gobind Singh Public School, sec-35
   |           | Prof. Yuvraj Singh | He told us if there is any query regarding anything they can share with him. He is involved in each club.|
   |             | Fine Arts Events | we went for the competition of mehandi conducted by our seniors.|
   |          | CAUSMIC CLUB | In this session we got to know about the causmic club and the events in which we can participate.|
-                
-  
+  | 25 July 2024 | UHV | In this class we learned about 9 feelings of relationship and basics of human order.|
+  |              | Peer Interaction About College | This was conducted by our senior Mr. Sumit where he discussed about the examination, clubs, library card, bus pass etc. |
+  |              | Maths test | At last on that day Mathematics test of 20 marks was conducted. |
+  | 26 July 2024 | Meditation Counsellor and Homeopathic practitioner Dr. Kanwalpreet K Bhatt | Mam told us about the power of meditation how it heals our internal injuries. She also gave us an activity of 15 minutes to do meditation. |
+  |              | Valedictory | As it was our last day of induction so there was Valedictory function. Many students performed dance and sang songs. This was organised by cultural committee.  Extremely enjoyable mimicry was performed by our senior. We enjoyed a lot. |
